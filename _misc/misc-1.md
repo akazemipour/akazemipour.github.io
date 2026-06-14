@@ -59,6 +59,7 @@ Dr. Alan Mandell
 - [You're gonna get what your deserve and it's based on YOU-JW](https://github.com/alirezakazemipour/alirezakazemipour.github.io/raw/refs/heads/master/_vids/You%20are%20gonna%20get%20what%20you%20deserve%20and%20it's%20based%20on%20you.mp4)
 - [You find the meaning of your life in your suffering-AB](https://youtube.com/shorts/vEUEVD8sNjk?si=rVLXwmirLCfnJL1s)
 - [The truth will reveal the world to you the way it is intended to be revealed-JP](https://www.youtube.com/shorts/Kmk9eYBESKI)
+- [Your past led you to the present. Your present will lead you to your future consequentially-SHY](https://youtube.com/shorts/PaeZKrlticI?si=FUnDgoveK5ZjbjRn)
 
 JP: 
 > You're in a damaged structure, you're a damaged structure, you're in a damaged structure.
