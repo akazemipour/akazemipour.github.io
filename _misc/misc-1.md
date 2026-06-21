@@ -108,6 +108,9 @@ NA:
 CW:
 > Adversity is a terrible thing to waste!
 
+JC:
+> Surprise is the triumph of the future over the past!
+
 # Generic
 [Learning how to learn](https://www.coursera.org/learn/learning-how-to-learn)
 
